@@ -1,2 +1,0 @@
-# JoeSeongchan.github.io
-Homepage
